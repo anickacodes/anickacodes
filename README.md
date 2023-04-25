@@ -1,4 +1,4 @@
-### Hi there 👋
+### Greetings 👋🏽
 
 <!--
 **anickacodes/anickacodes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🫶🏽A multi-creative committed to peace on Earth 🫠
+
+🫶🏽Currently learning FSWD to ensure a successful legacy
+
+🫶🏽Dedicated to problem solving one tiny step at a time in its entirety
+
+🫶🏽Ask me about all things in natural hair care such as regimens, best products, styles, etc.
