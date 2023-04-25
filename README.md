@@ -19,10 +19,15 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🫶🏽A multi-creative committed to peace on Earth 🫠
+_🫶🏽A multi-creative committed to peace on Earth 🫠_ 
 
-🫶🏽Currently learning FSWD to ensure a successful legacy
+_🫶🏽Currently learning FSWD to ensure a successful legacy 👩🏽‍💻_
 
-🫶🏽Dedicated to problem solving one tiny step at a time in its entirety
+_🫶🏽Dedicated to problem solving one tiny step at a time in its entirety 🚒_
 
-🫶🏽Ask me about all things in natural hair care such as regimens, best products, styles, etc.
+_🫶🏽Ask me about all things natural hair care such as growth or protective regimens & more!_ 
+
+
+<sub> Each One Teach One </sub>
+
+> Do unto others as you would have them do you 
