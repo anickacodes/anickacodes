@@ -16,7 +16,7 @@
 
 _🫶🏽A multi-creative committed to peace on Earth 🫠_ 
 
-_🫶🏽Currently learning FSWD to ensure a successful and warm legacy 👩🏽‍💻_
+_🫶🏽Currently learning FSWD to ensure a warm and successful legacy 👩🏽‍💻_
 
 _🫶🏽Dedicated to solving big problems tiny steps at a time ... until the end of time 🚒_
 
