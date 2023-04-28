@@ -16,16 +16,14 @@
 
 _🫶🏽A multi-creative committed to peace on Earth 🫠_ 
 
-_🫶🏽Currently learning FSWD to ensure a successful legacy 👩🏽‍💻_
+_🫶🏽Currently learning FSWD to ensure a successful and warm legacy 👩🏽‍💻_
 
-_🫶🏽Dedicated to problem solving one tiny step at a time in its entirety 🚒_
+_🫶🏽Dedicated to solving big problems tiny steps at a time ... until the end of time 🚒_
 
-_🫶🏽Ask me about all things natural hair care such as growth or protective regimens & more!_ 
-
-_🤔 I’m looking for help with empowering, educating and enriching the world, one heart at a time!_
+_🤔 Let's build interpersonal relationships that empower, educate and enrich one heart at a time!_
 
 
-#### Currently adding to my arsenal:
+#### Currently sharpening my belt in:
 
    
 <img src="https://github.com/devicons/devicon/blob/master/icons/react/react-original-wordmark.svg" title="React" alt="React" width="69" height="69"/>&nbsp;
