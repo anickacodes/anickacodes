@@ -12,6 +12,7 @@
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+<img align="right" alt="Coding" width="400" src="https://media.tenor.com/N2UZeTmvCR4AAAAd/ucheoma-uzosike-cartoon.gif">
 -->
 
 _🫶🏽A multi-creative committed to peace on Earth 🫠_ 
@@ -21,6 +22,7 @@ _🫶🏽Currently learning FSWD to ensure a warm and successful legacy 👩🏽
 _🫶🏽Dedicated to solving big problems tiny steps at a time ... until the end of time 🚒_
 
 _🤔 Let's build interpersonal relationships that empower, educate and enrich one heart at a time!_
+
 
 
 #### Currently sharpening my belt in:
