@@ -36,7 +36,6 @@ _🤔 Let's build interpersonal relationships that empower, educate and enrich o
 
 
 
-[![Ryo-ma's github trophy](https://github-profile-trophy.vercel.app/?username=anickacodes&row=1)](https://github.com/anickacodes/github-profile-trophy)
 
 
 
@@ -44,4 +43,4 @@ _🤔 Let's build interpersonal relationships that empower, educate and enrich o
 
 <sub> Each One Teach One </sub>
 
-> Do unto others as you would have them do you 
+💡 Do unto others as you would have them do you 
