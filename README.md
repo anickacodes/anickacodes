@@ -1,4 +1,4 @@
-### Greetings💻 👋🏽
+### Aloha 🌺 👋🏽
 
 
 
@@ -15,23 +15,23 @@
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/N2UZeTmvCR4AAAAd/ucheoma-uzosike-cartoon.gif">
 -->
 
-_🫶🏽A multi-creative committed to peace on Earth 🫠_ 
+_🫶🏽A multi-creative committed to creating the changes I want to see in the world_ 
 
-_🫶🏽Currently learning FSWD to ensure a warm and successful legacy 👩🏽‍💻_
+_🫶🏽FSWD utilizing my various skills in problem solving, analytics, leadership & branding👩🏽‍💻_
 
-_🫶🏽Dedicated to solving big problems tiny steps at a time ... until the end of time 🚒_
+_🫶🏽Dedicated to improving self 1% daily, step by step 🪜_
 
-_🤔 Let's build interpersonal relationships that empower, educate and enrich one heart at a time!_
+_👀 Seeking like-minded connections that enrich, empower and educate one heart at a time!_
 
 
 
 #### Currently sharpening my belt in:
 
    
-<img src="https://github.com/devicons/devicon/blob/master/icons/react/react-original-wordmark.svg" title="React" alt="React" width="69" height="69"/>&nbsp;
+<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/react/react-original.svg" title="React" alt="React" width="69" height="69"/>&nbsp;
 <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/nodejs/nodejs-plain.svg" title="NodeJS" alt="NodeJS" width="69" height="69"/>&nbsp;
-<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/github/github-original-wordmark.svg" title="GitHub" alt="GitHub" width="72" height="72"/>&nbsp;
-<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/git/git-original.svg" title="Git" alt="Git" width="68" height="68"/>&nbsp;
+<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/css3/css3-original.svg" title="CSS" alt="CSS" width='72' height='70'/>&nbsp;       
+<img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/bootstrap/bootstrap-original.svg" title="bootstrap" alt="bootstrap" width='72' height='70'/>&nbsp; 
 <img src="https://github.com/devicons/devicon/blob/master/icons/javascript/javascript-original.svg" title="JavaScript" alt="JavaScript" width="63" height="63"/>&nbsp;
 
 
