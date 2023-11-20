@@ -15,13 +15,17 @@
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/N2UZeTmvCR4AAAAd/ucheoma-uzosike-cartoon.gif">
 -->
 
-_🫶🏽A multi-creative committed to creating the changes I want to see in the world_ 
+_🫶🏽A multi-creative committed to 
+>creating the changes I want to see in the world_ 
 
-_🫶🏽FSWD utilizing my various skills in problem solving, analytics, leadership & branding to create lasting positive impact in my environments👩🏽‍💻_
+_🫶🏽FSWD utilizing my various skills in problem solving, analytics, leadership & branding to 
+>create lasting positive impact in my environments👩🏽‍💻_
 
-_🫶🏽Dedicated to improving self 1% daily(on a good day 🫠), step by step 🪜_
+_🫶🏽Dedicated to 
+>improving self 1% daily(on a good day 🫠), step by step 🪜_
 
-_👀 Seeking ❗️like-minded❗️ connections willing to collaboratively enrich, empower and educate one heart at a time!_
+_👀 Seeking ❗️like-minded❗️ connections willing to 
+>collaboratively enrich, empower and educate one heart at a time!_
 
 
 
