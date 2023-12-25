@@ -16,13 +16,13 @@
 -->
 
 _🫶🏽A multi-creative committed to 
->creating the changes I want to see in the world_ 
+>implementing the changes I want to see in the world_ 
 
 _🫶🏽FSWD utilizing my various skills in problem solving, analytics, leadership & branding to 
->create lasting positive impact in my environments👩🏽‍💻_
+>create lasting positive impact in my environments through tech👩🏽‍💻_
 
 _🫶🏽Dedicated to 
->improving self 1% daily(on a good day 🫠), step by step 🪜_
+>improving self 1% daily through clear self-analysis & refelction🪜_
 
 _👀 Seeking ❗️like-minded❗️ connections willing to 
 >collaboratively enrich, empower and educate one heart at a time!_
