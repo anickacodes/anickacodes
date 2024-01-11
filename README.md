@@ -16,7 +16,7 @@
 -->
 
 _🫶🏽A multi-creative committed to 
->implementing the changes I want to see in the world_ 
+>ileading the changes I want to see in the world through creative solutions_ 
 
 _🫶🏽FSWD utilizing my various skills in problem solving, analytics, leadership & branding to 
 >create lasting positive impact in my environments through tech👩🏽‍💻_
