@@ -15,17 +15,18 @@
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/N2UZeTmvCR4AAAAd/ucheoma-uzosike-cartoon.gif">
 -->
 
-_👯A multi-creative committed to 
->creative solutions that lead to the changes I wish to bring to the world, one underserved community at a time_ 
+_👯An alchemist committed to_
+>implementing creative solutions that foster upward changes to the world, one underserved community at a time
 
-_🫶🏽FSWD utilizing my various problem solving, analytics, leadership & branding skills to 
->create lasting positive impact with my ongoing connections in my environments through tech👩🏽‍💻_
 
-_⏳Consistently dedicated to 
->improving myself 1% daily through discipline that sprouts from self-analysis & refelction🪜_
+_🫶🏽FSWD utilizing my various skills in problem solving, analytics and leadership to_
+>strengthen my connections in the tech👩🏽‍💻 environment thus supplementing these future changes🌏
 
-_👀 Seeking ❗️like-minded❗️ connections willing to 
->collaboratively enrich, empower and educate one heart and one mind at a time!_
+_⏳Consistently dedicated to_
+>improving myself 1% daily through discipline that sprouts from self-analysis & refelction🪜
+
+_👀 Seeking ❗️like-minded❗️ connections willing to_
+>collaboratively enrich, empower and educate one heart and one mind at a time!
 
 
 
